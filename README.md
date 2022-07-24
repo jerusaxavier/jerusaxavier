@@ -1,4 +1,4 @@
-### Olá! Eu sou Jerusa Xavier
+### Oi, tudo bem?  Eu sou Jerusa Xavier.
 
 
 
